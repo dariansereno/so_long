@@ -15,6 +15,6 @@ Map Plain :
 ![alt text](https://ibb.co/nbFvt7w)
 
 And the Map editor with all blocks :
-![alt text](https://ibb.co/wSBY1g4)
+![alt text](https://i.ibb.co/bsQ7nmX/oie-JJ65a-XRy-Y2mz.png)
 
 Good Game!
